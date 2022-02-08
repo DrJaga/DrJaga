@@ -2,6 +2,11 @@
 
 
 Soy Adrián Garcilazo, epidemiólogo, mi línea de investigación sobre antropometría y envejecmiento saludable.
+
+## Redes sociales: 
+
+@judaita
+
 <!--
 **DrJaga/DrJaga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
