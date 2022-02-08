@@ -6,6 +6,7 @@ Soy Adrián Garcilazo, epidemiólogo, mi línea de investigación sobre antropom
 ## Redes sociales: 
 
 @judaita
+🥶 hace frio aquí!!
 
 <!--
 **DrJaga/DrJaga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
